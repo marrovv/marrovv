@@ -4,4 +4,4 @@
 <div align="center">
 <details>$\text{\color{#79459FFF} c+h friendly.ㅤw2i please.ㅤno longer that active on pony town.}$<summary>‎ $\text{\color{#79459FFF}︵}$</summary></details>
 
-<p align="center"> <a href="https://rentry.co/marrowsrentryyy">rentry</a>ㅤㅤㅤ<a href="https://sinfulsenses.atabook.org/?page=1">新book</a>
+ㅤㅤㅤ<a href="https://sinfulsenses.atabook.org/?page=1">新book</a>
